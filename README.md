@@ -1,3 +1,1 @@
-# latihan
-ini latihan
-latihan
+dapen anak orang
