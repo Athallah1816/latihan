@@ -1,1 +1,3 @@
 # latihan
+ini latihan
+latihan
